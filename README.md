@@ -1,4 +1,5 @@
 此项目只是用于申诉3次后无法在申诉的情况下继续申诉来解封，基本上你有时间都可以解封
+工具压缩包https://wwfb.lanzn.com/i419K325kw0d
 浏览器无法安装插件可以使用这个
 搜狗浏览器：https://wwd.lanzouf.com/iXdHB02gghmj
 密码:e838
